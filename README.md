@@ -1,3 +1,2 @@
 # about
-i am at ey gds why
-
+i am going to home 
