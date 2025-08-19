@@ -1,2 +1,2 @@
 # about
-why this is me 
+i am going to home 
